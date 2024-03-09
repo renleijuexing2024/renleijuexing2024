@@ -15,6 +15,20 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 一、人类的困局   新版
+<img width="369" alt="3-4" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/7074ee43-a392-4ac4-bba9-4984a65dac2a">
+<img width="530" alt="3-9" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/62f9230f-f17c-4ffe-bacf-6354824380b5">
+<img width="527" alt="3-8" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/83df8883-eada-42dc-be4e-ea0cd8f4b599">
+<img width="271" alt="3-7" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/fe946616-50cb-4906-9184-3d66abefe9dc">
+<img width="869" alt="3-6" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/832f480a-8f0d-49c3-9197-6bdf432995b3">
+<img width="362" alt="3-5" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/fa589ebb-cb12-4aec-bde1-747ffe1e2b51">
+<img width="632" alt="3-3" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/7da98ee0-653d-469a-817b-b88ed8fd636c">
+<img width="667" alt="3-2" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/20459ba2-1f6a-4fa8-9c7d-8eb9a3a14bc9">
+<img width="839" alt="3-1" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/cf849504-e2e5-4804-a2b0-de5f83bb5302">
+<img width="551" alt="2-3" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/e1e91170-88e8-4f68-906e-7808822bb9e8">
+<img width="354" alt="2-2" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/f81eca97-fba8-48a7-aa3b-123abe41da88">
+<img width="242" alt="2-1" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/7f76c092-9ad2-4e14-97a6-01874a8961e9">
+<img width="673" alt="1-2" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/c4554f6e-67bc-4449-ae98-3eda03f5a75a">
+<img width="479" alt="1-1" src="https://github.com/renleijuexing2024/renleijuexing2024/assets/162710496/e522558f-17c9-4e61-a059-a0a80d604080">
 
 1.1 <个体困局>
 
